@@ -1,4 +1,4 @@
-
+elite Scripts for anime card collection offers the most advanced anime card collection Script, with auto-collect and private server access. Perfect
 
 
 
